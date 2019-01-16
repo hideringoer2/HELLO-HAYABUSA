@@ -1,0 +1,2 @@
+# HELLO-HAYABUSA
+bussiness idea
